@@ -8,3 +8,7 @@
 
 
 ![Filtre](https://github.com/Abdelmonaimer/GestionMachines/assets/121363683/24793cff-69bf-4957-a082-4ed1b6711274)
+
+
+https://github.com/Abdelmonaimer/GestionMachines/assets/121363683/35dc58ce-e70a-4601-abb0-4e5d8422f476
+
